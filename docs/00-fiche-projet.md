@@ -3,7 +3,7 @@ Membres :
 * BOUNDJOU Komi Aristide
 * AKATA Richard
 * ABALO Honorine
-* aaaaaaaaa
+* KASSA Kodjo
 ---
 
 > **Livrable L2 · Jalon J1 (samedi 29 août 2026)** · validée par l'encadreur référent.  
